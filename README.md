@@ -1,4 +1,4 @@
-<div align="center"> # **Kristalli-Pere**
+# <div align="center">Kristalli-Pere
 
 <div align="center">## Meje lugu
 <div align="center">KristalliPere oli väike, kuid kasvav ettevõte, mille asutas ettevõtlik naine nimega Lilli. Lilli armastas kristalle ja nende ilu ning otsustas hakata valmistama kristallehteid ja -tarbeid. Alustuseks valmistas ta kristalle kodus ning müüs neid tuttavatele ja sõpradele. Kui huvi nende kristallide vastu kasvas, otsustas ta asutada oma ettevõtte.
