@@ -13,13 +13,10 @@ Kuid KristalliPere edu ei olnud ainult Lilli tubli töö tulemus. Ettevõtte tö
 
 Lõpuks kasvas KristalliPere ettevõte selliseks, et nad suutsid oma kliente rahuldada lausa kaheksa erineva tootekategooriaga, alates kristallidest kuni aromaatsete õlide ja muu sarnaseni. KristalliPere jääb Lilli ja tema töötajate armastuse ja kirgliku töö tulemusena jätkuvalt oma klientide südamesse.
 
-
+Leidke meid Parkvere 16,8/2 või X -646 / Y 64 / Z 1804
 
 
 <div align="center"><img loading="lazy" width="580" height="300" src="https://dl3.pushbulletusercontent.com/wWoPC1ZzzXa6SKdGxkQPPhThPf0k6Eoc/kristalli%20pere3.png" alt="" class="wp-image-672">
-
-
-Leidke meid Parkvere 16,8/2 või X -646 / Y 64 / Z 1804
     
 
 <div align="center">KristalliPere.69.mu
