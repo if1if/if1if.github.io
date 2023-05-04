@@ -19,5 +19,8 @@ Lõpuks kasvas KristalliPere ettevõte selliseks, et nad suutsid oma kliente rah
 <div align="center"><img loading="lazy" width="580" height="300" src="https://dl3.pushbulletusercontent.com/BwCWjor8xILjm1YGanekq5MeXCkjR3Xn/kristalli%20pere2.png" alt="" class="wp-image-672">
 
 
+##  Leidke meid Parkvere 16,8/2 või X -646 / Y 64 / Z 1804
+    
 
 <div align="center">KristalliPere.69.mu
+    
