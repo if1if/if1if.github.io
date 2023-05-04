@@ -10,3 +10,12 @@ KristalliPere kasvas järk-järgult ja Lilli palkas endale abilisi, et tootmist 
 Kuid KristalliPere edu ei olnud ainult Lilli tubli töö tulemus. Ettevõtte töötajad olid tema kirega nakatunud ning koos suutsid nad valmistada suurepäraseid tooteid. Samuti hindasid kliendid KristalliPere toodete kvaliteeti ja lojaalsus oli suur.
 
 Lõpuks kasvas KristalliPere ettevõte selliseks, et nad suutsid oma kliente rahuldada lausa kaheksa erineva tootekategooriaga, alates kristallidest kuni aromaatsete õlide ja muu sarnaseni. KristalliPere jääb Lilli ja tema töötajate armastuse ja kirgliku töö tulemusena jätkuvalt oma klientide südamesse.
+
+
+
+
+
+
+
+
+> KristalliPere.69.mu
