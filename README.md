@@ -1,8 +1,5 @@
 
-<p align="center">
-<img loading="lazy" width="100" height="100" src="http://www.hooling.ee/wp-content/uploads/2022/08/hooling.png" alt="" class="wp-image-672">
-</p>
-    
+
 <p align="center">
     <img width="400" src="https://dl3.pushbulletusercontent.com/3amRff0cud3FpijZfjybMeRoTiKfHUqs/pere%20lol.png" alt="Kristalli-Pere">
 </p>
