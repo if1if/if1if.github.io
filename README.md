@@ -1,7 +1,7 @@
 
 
 <p align="center">
-    <img width="400" src="https://dl3.pushbulletusercontent.com/SPjYJct2AQbmOO8QP20NXBhEuBlSCAGk/Amethyst_Shard_JE2_BE1.png" alt="&[Insert logo here lol]">
+    <img width="400" src="https://dl3.pushbulletusercontent.com/KnoHzpQKMbIORpOH94SEKh7KuzMopWk3/temp.png" alt="&[Insert logo here lol]">
 </p>
 
 <p align="center">
