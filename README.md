@@ -4,10 +4,6 @@
     <img width="400" src="https://dl3.pushbulletusercontent.com/KnoHzpQKMbIORpOH94SEKh7KuzMopWk3/temp.png" alt="&[Insert logo here lol]">
 </p>
 
-<p align="center">
-    <img width="400" src="https://dl3.pushbulletusercontent.com/3amRff0cud3FpijZfjybMeRoTiKfHUqs/pere%20lol.png" alt="Kristalli-Pere">
-</p>
-
 <div align="center">Meje lugu
 <div align="center">KristalliPere oli väike, kuid kasvav ettevõte, mille asutas ettevõtlik naine nimega Lilli. Lilli armastas kristalle ja nende ilu ning otsustas hakata valmistama kristallehteid ja -tarbeid. Alustuseks valmistas ta kristalle kodus ning müüs neid tuttavatele ja sõpradele. Kui huvi nende kristallide vastu kasvas, otsustas ta asutada oma ettevõtte.
 
